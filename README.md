@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Mengting Lin. I come from China. I am currently in Boston, MA, and studying entry-level codings. I enjoy working hard and improve my skills day by day! Nice to meet you 😏😏 
+I'm Mengting Lin. I come from China. I am currently in Daville, CA, and studying entry-level codings. I enjoy working hard and improve my skills day by day! Nice to meet you 😏😏 
 
 👩🏻‍💻 Check out my LinkedIn at https://www.linkedin.com/in/mengting-lin-3821021ba/
 
